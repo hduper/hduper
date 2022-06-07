@@ -9,3 +9,4 @@
 - 📫 hammadghaffar14@gmail.com
 - 😄 Always happy to help
 - ⚡ Christopher Nolan never attended Film school. Believe in yourself.
+- https://www.linkedin.com/in/hammad-ghaffar-5639b1123/
